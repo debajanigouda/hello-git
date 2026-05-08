@@ -1,3 +1,3 @@
 Learning the github.
 exploring the features.
-excited
+excited for learning new features.
